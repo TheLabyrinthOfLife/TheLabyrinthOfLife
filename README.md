@@ -1,3 +1,4 @@
+𓂃˖˳·˖ ִֶָ ⋆🪷⋆ ִֶָ˖·˳˖𓂃 ִֶָ
 .˚　　　　✦　　　.　　. 　 ˚　
 　　　.   　　˚　　 　　*　　 　　　 　　 　　　　   　
 
@@ -33,5 +34,6 @@
 [✧]WHAT I'M MOST LIKELY DOING : On Ponytown - Semiafk unless with friends so w2i! () Making skins on Ponytown () Writing on Google Docs - probably about ocs () Listening to music () 
 
 ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
-      ────── {.⋅ ♫ ⋅.} ─────                
+ --. ..𓂃 ࣪ ִֶָ་༘࿐🦋་༘࿐ ִֶָ. ..𓂃 ࣪ ִֶָ  --        
 ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
+
