@@ -19,11 +19,11 @@
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
-[☘︎]OLD FANDOMS : TRANSFORMERS, PENGUINS OF MADAGASCAR, 
+[☘︎]OLD FANDOMS : TRANSFORMERS, PENGUINS OF MADAGASCAR, GACHA, THE AMAZING WORLD OF GUMBALL
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
-[♬]FAVOURITE SONG ARTISTS : Chase Petra, Gigi Perez, Alex G, Cavetown, Mitski, Annabelle Dinda, Liana Flores, Maria and the Diamonds, Sia
+[♬]FAVOURITE SONG ARTISTS : `Sushi Soucy, Chase Petra, Gigi Perez`, Alex G, Cavetown, Mitski, Annabelle Dinda, Liana Flores, Maria and the Diamonds, Sia
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
