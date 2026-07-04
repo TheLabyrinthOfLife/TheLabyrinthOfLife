@@ -16,7 +16,7 @@
 ∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────
 
 
-[ꕤ]MAIN FANDOMS : `HARRY POTTER`, **THE AMAZING DIGITAL CIRCUS**, *PERCY JACKSON* 
+[ꕤ]MAIN FANDOMS : `HARRY POTTER`, **THE AMAZING DIGITAL CIRCUS**, *PERCY JACKSON*, *STEVEN UNIVERSE (RESURFACING)* 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
