@@ -13,7 +13,9 @@
    
 -------------------------------------------------------------------------------------------------------
 *❛❛'Cause I'm just a girl, I'd rather not be*
-*'Cause they won't let me drive late at night.❜❜*
+*'cause they won't let me drive late at night.❜❜*
+
+*❛❛I'm just a girlm I'm just a girl in the world. That's all that you'll let me be❜*
 ∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────
 
 
