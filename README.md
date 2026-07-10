@@ -12,7 +12,8 @@
 　　　.   　　˚　　 　　*　　
    
 -------------------------------------------------------------------------------------------------------
-*❛❛❜I'm just a girl in a world. That's all that you'll let me be.❜❜*
+*❛❛'Cause I'm just a girl, I'd rather not be*
+*'Cause they won't let me drive late at night.❜❜*
 ∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────
 
 
