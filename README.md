@@ -39,6 +39,11 @@
 
 [✧]WHAT I'M MOST LIKELY DOING : On Ponytown - Semiafk unless with friends so w2i! () Making skins on Ponytown () Writing on Google Docs - probably about ocs () Listening to music () 
 
+
+︶︶︶︶︶︶︶︶︶︶︶︶
+
+More about DNI on Carrd, but HUGE DNI to people who undermine abuse of any kind to both men and women - and also, generally, human beings. STOP ACTING LIKE PHYSICAL AND EMOTIONAL ABUSE IS 'SLAY' OR 'STRONG' YOU DIM-WITTED FUCKS? I genuinely hate people like this, gtfo. A girl hitting a boy is just as bad as a man hitting a woman, so just GTFO??? I HATE YOU.
+
 ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
 
  --. ..𓂃 ࣪ ִֶָ་༘࿐🦋་༘࿐ ִֶָ. ..𓂃 ࣪ ִֶָ  -- 
