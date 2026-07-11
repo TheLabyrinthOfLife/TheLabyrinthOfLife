@@ -1,5 +1,4 @@
 [Please don't infantilize me because of my age??? You're more than welcome to send a message on my ata or call me an idiot for trolling without beiing seen as creepy.]
-^real experience
 
 𓂃˖˳·˖ ִֶָ ⋆🪷⋆ ִֶָ˖·˳˖𓂃 ִֶָ
 
