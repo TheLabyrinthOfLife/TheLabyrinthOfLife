@@ -12,6 +12,7 @@
 ``AVILA / JEANNE``
 
 ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
+
 .˚　　　　✦　　　.　　.
 　　　.   　　˚　　 　　*　　
    
@@ -21,6 +22,7 @@
 
 *❛❛I'm just a girl. I'm just a girl in the world. That's all that you'll let me be.❜❜*
 ∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────
+
 PONYTOWN STUFFS:
 
 C+H at all times. I love sitting behind other people. Even when I'm in a low mood.
