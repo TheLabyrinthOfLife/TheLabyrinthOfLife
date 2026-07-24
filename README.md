@@ -36,11 +36,11 @@ May leave abruptly. Maybe to go to sleep. Something happened IRL. Or I've lost i
 ∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────✧₊∘∘₊✧─────
 
 
-[ꕤ]MAIN FANDOMS : `HARRY POTTER`, **THE AMAZING DIGITAL CIRCUS**, *PERCY JACKSON*, *STEVEN UNIVERSE - THE OWL HOUSE (RESURFACING)* 
+[ꕤ]MAIN FANDOMS : `TRANSFORMERS`, **THE AMAZING DIGITAL CIRCUS**, *PERCY JACKSON*, *STEVEN UNIVERSE - THE OWL HOUSE (RESURFACING)* 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
-[☘︎]OLD FANDOMS : TRANSFORMERS, PENGUINS OF MADAGASCAR, GACHA, THE AMAZING WORLD OF GUMBALL
+[☘︎]OLD FANDOMS : ARRY POTTER, PENGUINS OF MADAGASCAR, GACHA, THE AMAZING WORLD OF GUMBALL
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
