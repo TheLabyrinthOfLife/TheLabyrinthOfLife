@@ -40,8 +40,10 @@ May leave abruptly. Maybe to go to sleep. Something happened IRL. Or I've lost i
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
-[☘︎]OLD FANDOMS : ARRY POTTER, PENGUINS OF MADAGASCAR, GACHA, THE AMAZING WORLD OF GUMBALL
+[☘︎]OLD FANDOMS : HARRY POTTER, PENGUINS OF MADAGASCAR, GACHA, THE AMAZING WORLD OF GUMBALL
 
+
+FUCK JK ROWLING.
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
 [♬]FAVOURITE SONG ARTISTS : `Sushi Soucy, Chase Petra, Gigi Perez`, Alex G, Cavetown, Mitski, Annabelle Dinda, Liana Flores, Maria and the Diamonds, Sia
