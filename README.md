@@ -59,9 +59,11 @@ FUCK JK ROWLING.
 
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
-More about DNI on Carrd, but HUGE DNI to people who undermine abuse of any kind to both men and women - and also, generally, human beings. STOP ACTING LIKE PHYSICAL AND EMOTIONAL ABUSE IS 'SLAY' OR 'STRONG' YOU DIM-WITTED FUCKS? I genuinely hate people like this. A girl hitting a boy is just as bad as a man hitting a woman, so just GTFO??? I HATE YOU.
+More about DNI on Carrd, but HUGE DNI to people who undermine abuse of any kind to both men and women - and also, generally, human beings. STOP ACTING LIKE PHYSICAL AND EMOTIONAL ABUSE IS 'SLAY' OR 'STRONG' YOU DIM-WITTED FUCKS?
 
 Already seeing comments like that on Youtube makes me furious, so don't expect me to be friends with you if you're like this? And for the Nosy Parkers, yes, I am a biological female at birth.
+
+Also DNI to idiots who make joke about sexual assault. Just get lost.
 
 ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
 
