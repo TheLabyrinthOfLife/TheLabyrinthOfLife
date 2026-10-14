@@ -30,18 +30,25 @@
 *OTHER STUFFS:*
 
 ⟡ WRITING
+
 -Psychology! I love understanding and learning different mindsets and nuances and exploring morally grey characters through my writings! I made a looot of ocs including tons of fankids! You'll mainly see me in fankid skins
+
 -Adding onto that I can tend to have a bit of a formal vocalbulary when discussing stuff so please don't think I'm pretentious or anything like that auhdfhgg... I love experimenting with new words. 
+
 -I LOVE WRITING CHARACTERS! Especially fankids! I am dead serious when I say this, give me any ship, even a crack ship, and I may or may not make them into a real thing in some one-off universe! xd I LOVE SHARING THEM AS WELL AAAAA
+
 -However, I project heavily onto my ocs and they either mirror or reverse mirror me in certain aspects. Some of them are even made to help me process or unlearn certain things. I will not bash you for any comment you make of them that may come off wrong, but they do mean a lot to me.
 
 ⟡ DRAWING
+
 -I looovelovelove drawing but I'm lowk scared of showing my art so if I do show it to you it probably means I trust you dhhsfhfsd. Experimenting with my styles at the moment.
 
 ⟡DEBATING / EXPLAINING
+
 -Ok uhh this is subjective. I do love explaining things to others and discussing topics a lot! However it heavily depends on my mood and the present company or who I'm talking tooo... Don't be afraid to ask if we're friendzos tho. 
 
 ⟡MUSIC
+
 -I ADORE MUSIC. I CANNOT LIVE WITHOUT IT. SONG RECCOMENDATIONS ARE VERY WELCOME
 
 -
